@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-PAMJ940101HOCLNS00
+PAMJ940101HOCLNS00
